@@ -1,1 +1,1 @@
-KKKKKKKKKKKKKKKKK
+Mano que coisa em
