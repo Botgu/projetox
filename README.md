@@ -1,1 +1,1 @@
-Mano que coisa em
+Mano que coisa em como eu não gosto de viver
